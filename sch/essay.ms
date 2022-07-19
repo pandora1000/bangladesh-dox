@@ -1,0 +1,27 @@
+Law and morality should never collide
+
+ Abstract.
+
+Which person is freer? Person A; a pornography addict who lives in a society where pornography isn't shunned by society and is not banned in its entirety by government or person B, who lives in a society where it is not only illegal to consume/distribute pornography but who lives a life in which such a vice was never created. How you answer this question may fundamentally explain your worldview on this essay's statement. Those belonging to the liberal school of thought are naturally inclined to say the former. After all liberalism places the freedom of the individual at the root of its ideology, if they do not also violate another person’s freedom, in pursuit of their own. Although normative to say, Britain is becoming more socially liberal, a 2019 study from KCL showed that 22% of people believe soft porn is morally wrong compared to 38% in 1989. Only 29% of people believe soft drugs, such as cannabis, are morally wrong compared to 60% in 1989. With an understanding of these figures, it is safer to presume a much higher percentage of the UK would agree that Law and Morality should never collide. While both scenarios when thrust into academic debate may seem crude and a hyper visualization of person A and person B’s lifestyle, how one answers this question is fundemental in understanding why in antiquity person A would be shunned. This essay will be explored with a three-pronged approach, historically (antiquity and modern), law, religion.
+
+
+
+Paragraph 1.
+
+ Law and morality - do not collide. To collide is to suggest conflict. Conflict or collision as the title would suggest is purely a modern phenomenon – under the banner of ‘sexual freedom’ protestests were held outside Parliament against pornography laws which would ban scenes such as spanking/whipping from porn, which the UK government deemed as ‘morally damaging’.
+
+In antiquity, moral laws, such as laws against adultery were not opposed, trials would be held to defend ones innocence but not protests or revolts against the laws itself.
+
+
+
+ In antiquity, moral law was not opposed. Laws clamping down cultural practices would face opposition in antiquity so would laws clamping down on an individual’s freedom. But those are not moral issues. Rulers or Kingsly states of antiquity understood far greater what negative freedom was to mean to man than lawmakers of today. Negative freedom is freedom which lacks interference, freedom which enables the destruction of one’s psyche, family relations and ability to function and contribute to wider society. Law cannot be set without morality. In our current society, taboos have usually prevailed over law, encouraging law to be made through genuine public concern. For example, it is the taboo associated with paedophilia, which sets way for rigid laws to protect young children. Public taboo adds staunch support for such laws. Indeed, if morals are to be thrown aside, how may one argue against paedophilia? In the same sense, what protects the sovereign rights of children from being sexualized? We would be hard-pressed to find widespread opposition of anti-paedophilia laws... However, if our protective sphere of taboo is to chip away and we delve closer into a society in which law and morality are not to collide,. Oour Aristotelian sense of ’akrasia’ will be preyed upon. If masturbation in public becomes less of a taboo, will the legislature against indecent exposure be appealed? Is taboo, not the simplest understanding of morality? Classically, the goal of law is to minimize one’s temptations whilst protecting individuals. In this sense, the goal of modern government is to set laws, which will be a countervailing force against such vices. What use is a growing population of men, increasingly dependent on pornography for short dopamine bursts? What use is enabling pornography, when... St. Augustine himself suffered from a divided will, he commented how he felt torn apart between his will to live as an ascetic Christian and the will to continue a previously sexually active life. Though he values the former better than the letter, the latter is hard to opt into because of his bad habits, these have been acquired voluntarily but have been transformed into an addictive necessity. If a law were to be signed and announced, declaring the distribution of pornography illegal, I do not believe there would be legitimate opposition, spearheading crime on the scale of US prohibition. For who will come out of their doors in support of pornography. Hoorah for pornography?
+
+
+
+
+
+
+
+Paragraph 2
+
+Are you saying that the government should make illegal what current society, current taboo, considers immoral. If you are to ask a broad question, I will give a broad answer. Yes. What about borderline mentions or acts that are borderline made illegal based on morals? If by borderline, you are to assume the role of the film industry... A film depicting immoral acts, such as adultery, murder, -2- pornography usually finish with a tragic ending, commemorating these acts as the reason for one’s downfall, in that sense, there is no collision. No one will walk away after a film screening, feeling encouraged to commit adultery. But what about the exceptions in which one’s violent tendencies will increase? The minority does not become the exception. The basis of morality is to prevent slavery of individuals.
